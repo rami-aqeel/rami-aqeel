@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... anything PPC, Web Developmment or Digital Marketing in general.
 - 📫 How to reach me ... Definitely my LinkedIn: https://www.linkedin.com/in/ramialaqeeldigital/
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... Huge Arsenal fan, love playing Chess, gaming, and travelling.
 
 <!---
 rami-aqeel/rami-aqeel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
